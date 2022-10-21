@@ -1,1 +1,1 @@
-[`Contact me on WhatsApp`](https://wa.me/qr/FVXIIWDBXXSQC1#)
+[`Contact me on WhatsApp`](https://wa.me/qr/FVXIIWDBXXSQC1)
