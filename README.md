@@ -1,2 +1,1 @@
-
-User bot welcome / alive / goodbye
+[`Contact me on WhatsApp`](https://wa.me/qr/FVXIIWDBXXSQC1#)
